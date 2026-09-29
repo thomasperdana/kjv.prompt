@@ -1,0 +1,1 @@
+https://claude.com/contact-sales/education-plan
